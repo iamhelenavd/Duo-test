@@ -24,6 +24,7 @@ INGREDIENTS - CASHEW CHEESE
 ½ tsp garlic powder
 1 tsp lemon juice
 2 tsp seesalt (hdhksajdh lashd kj.asdh ks.djhf k.sdjfh k.dhkfhg k.afh lhfsghd)
+½ tsp salt (sea)
 
 Bereiding:
 
