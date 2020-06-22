@@ -23,7 +23,7 @@ INGREDIENTS - CASHEW CHEESE
 150 ml oat milk
 ½ tsp garlic powder
 1 tsp lemon juice
-½ tsp salt
+½ tsp salt (sea)
 
 
 Bereiding:
